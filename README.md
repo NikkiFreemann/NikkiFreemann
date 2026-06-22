@@ -51,6 +51,7 @@
 - im a rude person !! im so sorry if im mean to you , i cant help it
 - i make adult jokes,  and im the least sensitive person youll meet sadly ;/
 - im not a system, plss dont call me a system !!
+- im almost always afk!! please send me a whisper to int !! i luv crowns soso much, thank you to all the sweet people that crowned me !
 - **DNI**
 - Ice supporters, maga, proshippers, groomers, racists, homophobes, transphobes, ableists. ex friends, my ex's, and people me, or my friends blocked
 - **Do's**
@@ -65,6 +66,11 @@
   </a>
 
 
+<div align="center">
 
+- i am obsessed with wolves, and canines of any sort !! ive been hyper fixation for almost my WHOLE life !!
+- im a medical GEEK. im planning to be a nurse when i graduate
+
+</div>
 
  
