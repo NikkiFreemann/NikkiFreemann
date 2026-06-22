@@ -20,14 +20,14 @@
 
 <div align="center">
 
-- Hello !! im amanda, jennifer, and rachel !! ;p
+ Hello !! im amanda, jennifer, and rachel !! ;p
 - Im mexican american
-- i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026<3. I yumeship with both prewish nikki, and wish nikki !!
-- i use they/them, im intersex and im a chapstick lesbian
-- ask for socials, ill love to give you them !! but 99% of them are milliesaxe of some sort ;p
-- Nikki Freeman X Sarah Harper int . . Nikki Freeman X Baron (BEAR) Bailey iwec . .
-- im gonna dye my hair red !!
-- i have central heterochromia !!
+  - i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026<3. I yumeship with both prewish nikki, and wish nikki !!
+  - i use they/them, im intersex and im a chapstick lesbian
+  - ask for socials, ill love to give you them !! but 99% of them are milliesaxe of some sort ;p
+ -  Nikki Freeman X Sarah Harper int . . Nikki Freeman X Baron (BEAR) Bailey iwec . .
+ - im gonna dye my hair red !!
+-  i have central heterochromia !!
 
 </div>
 
@@ -46,12 +46,12 @@
 
 </div>
 
-- **BYI**
+**BYI**
 - i have bpd, autism, and more !! be paitent with me x_-
 - im a rude person !! im so sorry if im mean to you , i cant help it
 - i make adult jokes,  and im the least sensitive person youll meet sadly ;/
 - im not a system, plss dont call me a system !!
-- im almost always afk!! please send me a whisper to int !! i luv crowns soso much, thank you to all the sweet people that crowned me !
+-  im almost always afk!! please send me a whisper to int !! i luv crowns soso much, thank you to all the sweet people that crowned me !
 - **DNI**
 - Ice supporters, maga, proshippers, groomers, racists, homophobes, transphobes, ableists. ex friends, my ex's, and people me, or my friends blocked
 - **Do's**
@@ -85,6 +85,12 @@
 selfship art with tloml (nikki)
 
 </div>
+<img width="267" height="255" alt="ILOVE YOU NIKKI" src="https://github.com/user-attachments/assets/fcbcd2a4-6fa6-45c4-b1cf-b8d9a80bdfe6" /> <img width="264" height="299" alt="Nikki icon (Obsession 2026)" src="https://github.com/user-attachments/assets/63d600c1-b7a0-48c0-98d1-5de99da73e11" /> <img width="236" height="236" alt="Nikki Freeman" src="https://github.com/user-attachments/assets/436bf912-c043-44c6-9162-e859f6d57669" />
+
+
+
+
+
 
 
 
