@@ -23,7 +23,8 @@
  Hello !! im amanda, jennifer, and rachel !! ;p
 - Im mexican american
   - i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026<3. I yumeship with both prewish nikki, and wish nikki !!
-  - i use they/them, im intersex and im a chapstick lesbian
+  - i use they/them, im intersex and im a chapstick lesbian!! uou can ABSOLUTELY use she/her if you call me nikki !!
+  - im always up to rp lowk.. add my discord - @milliesaxe
   - ask for socials, ill love to give you them !! but 99% of them are milliesaxe of some sort ;p
  -  Nikki Freeman X Sarah Harper int . . Nikki Freeman X Baron (BEAR) Bailey iwec . .
  - im gonna dye my hair red !!
