@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="736" height="300" alt="download (4)" src="https://github.com/user-attachments/assets/bfae262d-fc3f-455d-9b09-4aa7932b61b8" />
+<img width="836" height="500" alt="download (4)" src="https://github.com/user-attachments/assets/bfae262d-fc3f-455d-9b09-4aa7932b61b8" />
 
 </div>
 
@@ -87,6 +87,13 @@ selfship art with tloml (nikki)
 
 </div>
 <img width="267" height="255" alt="ILOVE YOU NIKKI" src="https://github.com/user-attachments/assets/fcbcd2a4-6fa6-45c4-b1cf-b8d9a80bdfe6" /> <img width="264" height="299" alt="Nikki icon (Obsession 2026)" src="https://github.com/user-attachments/assets/63d600c1-b7a0-48c0-98d1-5de99da73e11" /> <img width="236" height="236" alt="Nikki Freeman" src="https://github.com/user-attachments/assets/436bf912-c043-44c6-9162-e859f6d57669" />
+
+
+
+<div align="center">
+
+<img width="836" height="500" alt="Nikki Freeman _ OBSESSION 2026" src="https://github.com/user-attachments/assets/3ac58c5d-9794-44fb-aa2d-aca6ccad9465" />
+</div>
 
 
 
