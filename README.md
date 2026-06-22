@@ -73,4 +73,19 @@
 
 </div>
 
+
+<div align="center">
+
+<img width="436" height="436" alt="me and nikki" src="https://github.com/user-attachments/assets/5d206068-3ca6-4279-b412-e0bad85fa6f9" />
+
+</div>
+
+<div align="center">
+
+selfship art with tloml (nikki)
+
+</div>
+
+
+
  
