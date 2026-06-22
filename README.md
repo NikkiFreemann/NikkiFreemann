@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="836" height="500" alt="download (4)" src="https://github.com/user-attachments/assets/bfae262d-fc3f-455d-9b09-4aa7932b61b8" />
+<img width="736" height="400" alt="download (4)" src="https://github.com/user-attachments/assets/bfae262d-fc3f-455d-9b09-4aa7932b61b8" />
 
 </div>
 
@@ -76,7 +76,7 @@
 
 <div align="center">
 
-<img width="536" height="536" alt="ilmgf" src="https://github.com/user-attachments/assets/b06eac25-483d-4583-ad22-79b9949b39e3" />
+<img width="636" height="536" alt="ilmgf" src="https://github.com/user-attachments/assets/b06eac25-483d-4583-ad22-79b9949b39e3" />
 
 
 </div>
@@ -92,9 +92,13 @@ selfship art with tloml (nikki)
 
 <div align="center">
 
-<img width="836" height="500" alt="Nikki Freeman _ OBSESSION 2026" src="https://github.com/user-attachments/assets/3ac58c5d-9794-44fb-aa2d-aca6ccad9465" />
+<img width="736" height="400" alt="Nikki Freeman _ OBSESSION 2026" src="https://github.com/user-attachments/assets/3ac58c5d-9794-44fb-aa2d-aca6ccad9465" />
 </div>
 
+<div align="center">
+
+**' I THOUGHT WE WERE HAVING A NICE DATTEEE ;( '**
+</div>
 
 
 
