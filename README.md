@@ -6,7 +6,7 @@
 
 <div align="center">
 
-![](https://img.shields.io/static/v1?label=OBSESSION&message=200&color=red)
+![](https://img.shields.io/static/v1?label=OBSESSION&message=10&color=red)
 
 </div>
 
