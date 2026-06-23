@@ -22,6 +22,7 @@
 
  Hello !! im amanda, jennifer, and rachel !! -_- you can always call me nikki tho !! eyes
 - Im mexican american
+- everyones favorite mentally ill werewolf 
   - i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026<3. I yumeship with both prewish nikki, and wish nikki !!
   - im single !!! umyes if you like me hmu im lonely
   - i use they/them, im intersex and im a chapstick lesbian!! uou can ABSOLUTELY use she/her if you call me nikki !!
