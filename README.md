@@ -20,7 +20,7 @@
 
 <div align="center">
 
- Hello !! im amanda, jennifer, and rachel !! ;p
+ Hello !! im amanda, jennifer, and rachel !! ;p you can always call me nikki tho !! eyes
 - Im mexican american
   - i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026<3. I yumeship with both prewish nikki, and wish nikki !!
   - im single !!! umyes if you like me hmu im lonely
@@ -30,6 +30,8 @@
  -  Nikki Freeman X Sarah Harper int . . Nikki Freeman X Baron (BEAR) Bailey iwec . .
  - im gonna dye my hair red !!
 -  i have central heterochromia !!
+-  plssplspl dont be afraid to int w me !! especially if youre an obsession fan.. please int omg i need more friends ;//
+-  **~~nikki freeman fictkins/fictives<?> iwec unless youre comfy w me selfshipping w her !~~**
 
 </div>
 
