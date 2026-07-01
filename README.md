@@ -22,6 +22,7 @@
 
  Hello !! im amanda, jennifer, and rachel !! -_- you can always call me nikki tho !! eyes
 - Im mexican american
+- if u want me to stay on allnight/all day pls tell me !! i usually go to bed at 10pm mst and turn my pc off -_- if u want me to stay fr just ask me to stay, i will
 - everyones favorite mentally ill werewolf 
   - i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026<3. I yumeship with both prewish nikki, and wish nikki !!
   - 6/25/2026 with sarah harper !! um so sarah x nikki made me so sick that i started yumeshipping w both og them.. um im in na poly yumeship w them ok,, doubles dni..
