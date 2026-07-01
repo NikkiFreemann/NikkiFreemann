@@ -30,7 +30,7 @@
   - im always up to rp lowk.. add my discord - @milliesaxe
   - ask for socials, ill love to give you them !! but 99% of them are milliesaxe of some sort ;p
  -  Nikki Freeman X Sarah Harper int freely pls . . Nikki Freeman X Baron (BEAR) Bailey int if youre not weird
- - im gonna dye my hair red !!
+ - i have dyed red hair !!
 -  i have central heterochromia !!
 -  plssplspl dont be afraid to int w me !! especially if youre an obsession fan.. please int omg i need more friends ;//
 -  **~~nikki freeman fictkins/fictives<?> iwec unless youre comfy w me selfshipping w her !~~**
