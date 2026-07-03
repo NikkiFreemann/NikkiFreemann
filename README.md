@@ -20,7 +20,7 @@
 
 <div align="center">
 
- Hello !! im amanda, jennifer, and rachel !! -_- you can always call me nikki tho !! eyes
+ Hi, please only call me nikki if you dont know me, or if were not close ^_^
 - Im mexican american
 - if u want me to stay on allnight/all day pls tell me !! i usually go to bed at 10pm mst and turn my pc off -_- if u want me to stay fr just ask me to stay, i will
 - everyones favorite mentally ill werewolf 
