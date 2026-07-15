@@ -26,13 +26,11 @@
 - everyones favorite mentally ill werewolf 
   - i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026<3. I yumeship with both prewish nikki, and wish nikki !!
   - 6/25/2026 with sarah harper !! um so sarah x nikki made me so sick that i started yumeshipping w both og them.. um im in na poly yumeship w them ok,, doubles dni..
-  - im single !!! umyes if you like me hmu im lonely
-  - i use they/them, im intersex and im a chapstick lesbian!! uou can ABSOLUTELY use she/her if you call me nikki !!
+  - im single !!! umyes if you like me hmu im lonely /hj
+  - i use she / they, im intersex and im a chapstick lesbian!!
   - im always up to rp lowk.. add my discord - @milliesaxe
   - ask for socials, ill love to give you them !! but 99% of them are milliesaxe of some sort ;p
- -  Nikki Freeman X Sarah Harper int freely pls . . Nikki Freeman X Baron (BEAR) Bailey int if youre not weird
- - i have dyed red hair !!
--  i have central heterochromia !!
+ -  Nikki Freeman X Sarah Harper int freely pls . . Nikki Freeman X Baron (BEAR) Bailey iwec . . nikki freeman  x ian iwec
 -  plssplspl dont be afraid to int w me !! especially if youre an obsession fan.. please int omg i need more friends ;//
 -  **~~nikki freeman fictkins/fictives<?> iwec unless youre comfy w me selfshipping w her !~~**
 
