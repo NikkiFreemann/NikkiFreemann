@@ -59,9 +59,9 @@
 - im not a system, plss dont call me a system !!
 -  im almost always afk!! please send me a whisper to int !! i luv crowns soso much, thank you to all the sweet people that crowned me !
 - **DNI**
-- Ice supporters, maga, proshippers, groomers, racists, homophobes, transphobes, ableists. ex friends, my ex's, and people me, or my friends blocked
-- **Do's**
-- C+h anytime !! no matter if i have dni in my name. i LOVE people sitting with me!! other obsession yumeshippers besides nikkis int !! >_<
+- Ice supporters, maga, proshippers, groomers, racists, homophobes, transphobes, ableists. ex friends, my ex's, people me, or my friends blocked, animal hospital fandom, BTD, i HATE YOUALL, dandys world, impractical jokers. sory i just dont like the fandom
+- **Do's/int**
+- C+h anytime !! no matter if i have dni in my name. i LOVE people sitting with me!! other obsession yumeshippers intintint
 
 
 
