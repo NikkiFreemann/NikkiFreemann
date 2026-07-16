@@ -23,7 +23,8 @@
  hi, please only call me nikki if you dont know me, or if were not close ^_^
 - Im mexican american
 - if u want me to stay on allnight/all day pls tell me !! i usually go to bed at 10pm mst and turn my pc off -_- if u want me to stay fr just ask me to stay, i will
-- everyones favorite mentally ill werewolf 
+- everyones favorite mentally ill werewolf
+- __D1 SARAH X NIKKI SHIPPER EVER TRUST__
   - i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026<3. I yumeship with both prewish nikki, and wish nikki !!
   - 6/25/2026 with sarah harper !! i die in anger kayla this is your fault i selfship with the bpth of them!!
   - i use she / they, im intersex and im a chapstick lesbian!! im also single but thats something else
