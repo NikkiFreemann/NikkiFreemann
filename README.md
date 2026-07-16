@@ -20,15 +20,13 @@
 
 <div align="center">
 
- Hi, please only call me nikki if you dont know me, or if were not close ^_^
+ hi, please only call me nikki if you dont know me, or if were not close ^_^
 - Im mexican american
 - if u want me to stay on allnight/all day pls tell me !! i usually go to bed at 10pm mst and turn my pc off -_- if u want me to stay fr just ask me to stay, i will
-- i use this github for other ponies and not only obsessio, ok.
 - everyones favorite mentally ill werewolf 
   - i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026<3. I yumeship with both prewish nikki, and wish nikki !!
-  - 6/25/2026 with sarah harper !! um so sarah x nikki made me so sick that i started yumeshipping w both og them.. um im in na poly yumeship w them ok,, doubles dni..
-  - im single !!! umyes if you like me hmu im lonely /hj
-  - i use she / they, im intersex and im a chapstick lesbian!!
+  - 6/25/2026 with sarah harper !! i die in anger kayla this is your fault i selfship with the bpth of them!!
+  - i use she / they, im intersex and im a chapstick lesbian!! im also single but thats something else
   - im always up to rp lowk.. add my discord - @milliesaxe
   - ask for socials, ill love to give you them !! but 99% of them are milliesaxe of some sort ;p
  -  Nikki Freeman X Sarah Harper int freely pls . . Nikki Freeman X Baron (BEAR) Bailey iwec . . nikki freeman  x ian iwec
@@ -59,9 +57,9 @@
 - im not a system, plss dont call me a system !!
 -  im almost always afk!! please send me a whisper to int !! i luv crowns soso much, thank you to all the sweet people that crowned me !
 - **DNI**
-- Ice supporters, maga, proshippers, groomers, racists, homophobes, transphobes, ableists. ex friends, my ex's, people me, or my friends blocked, animal hospital fandom, BTD, i HATE YOUALL, dandys world, impractical jokers. sory i just dont like the fandom
+- Ice supporters, maga, proshippers, groomers, racists, homophobes, transphobes, ableists. ex friends, my ex's, people me, or my friends blocked, animal hospital fandom, BTD<-- i HATE YOUALL, dandys world, impractical jokers. sory i just dont like the fandom
 - **Do's/int**
-- C+h anytime !! no matter if i have dni in my name. i LOVE people sitting with me!! other obsession yumeshippers intintint
+- C+h anytime !! no matter if i have dni in my name. i LOVE people sitting with me!! other obsession yumeshippers intintint. If u justwanna bmf pls int omgm i dont talk to anyone im crying. Um ummum if u justwanna talki dont care i just  am usualyl dry/offtab, paramore fans INTPLLEAASSEEEEE, dbd fans inniintinttintintni
 
 
 
@@ -74,7 +72,7 @@
 
 <div align="center">
 
-- i am obsessed with wolves, and canines of any sort !! ive been hyper fixation for almost my WHOLE life !!
+- i am obsessed with wolves, and canines of any sort !! ive been hyper fixation for almost my WHOLE life !! i amm currently trying to decorate my whole room with wolf stuff AANNDD obsession shit
 - im a medical GEEK. im planning to be a nurse when i graduate
 
 </div>
