@@ -30,7 +30,7 @@
   - i use she / they, im intersex and im a chapstick lesbian!! im also single but thats something else
   - im always up to rp lowk.. add my discord - @milliesaxe
   - ask for socials, ill love to give you them !! but 99% of them are milliesaxe of some sort ;p
- -  Nikki Freeman X Sarah Harper int freely pls . . Nikki Freeman X Baron (BEAR) Bailey iwec . . nikki freeman  x ian iwec
+ -  Nikki Freeman X Sarah Harper int freely pls . . Nikki Freeman X Baron (BEAR) Bailey iwec . . nikki freeman  x ian iwec. i do NOT ship bear x nikki, i just want some people to be happy around me.
 -  plssplspl dont be afraid to int w me !! especially if youre an obsession fan.. please int omg i need more friends ;//
 -  **~~nikki freeman fictkins/fictives<?> iwec unless youre comfy w me selfshipping w her !~~**
 
