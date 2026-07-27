@@ -6,7 +6,13 @@
 
 <div align="center">
 
-![](https://img.shields.io/static/v1?label=OBSESSION&message=10&color=red)
+![](https://img.shields.io/static/v1?label=OBSESSION&message=1&color=red)
+
+</div>
+
+<div align="center">
+
+[ponytowns nikki freeman ^_^](https://github.com/title-town)
 
 </div>
 
