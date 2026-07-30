@@ -12,7 +12,7 @@
 
 <div align="center">
 
-[ponytowns nikki freeman ^_^](https://github.com/title-town)
+[ponytowns nikki freeman ^_^](https://github.com/title-town) - [nikki freemans #1 fan !](https://github.com/pt-hall-of-media)
 
 </div>
 
