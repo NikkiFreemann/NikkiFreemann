@@ -28,6 +28,7 @@
 
  hi, please only call me nikki if you dont know me, or if were not close ^_^
 - Im mexican american
+- **before you hate, please know i share sa trauma with nikki, and selfshipping with her has helped me block out so much trauma and allowed me to function everyday without acting weird. but your words doesnt annoy me because i actuallly dont gaf about what you think. drool emoji. i will just make fun of you if u said something about me selfshipping with her fr**
 - if u want me to stay on allnight/all day pls tell me !! i usually go to bed at 10pm mst and turn my pc off -_- if u want me to stay fr just ask me to stay, i will
 - everyones favorite mentally ill werewolf
 - __D1 SARAH X NIKKI SHIPPER EVER TRUST__
