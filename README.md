@@ -69,7 +69,7 @@
 -  im almost always afk!! please send me a whisper to int !! i luv crowns soso much, thank you to all the sweet people that crowned me !
 - **DNI**
 - my humor isnt the best, and i will laugh at everything. iwec if youre not ook with that !! im trying to get my humor fixed by hanging out random people,, rip
-- Ice supporters, maga, proshippers, groomers, racists, homophobes, transphobes, ableists. ex friends, my ex's, people me, or my friends blocked, animal hospital fandom, BTD<-- i HATE YOUALL, dandys world, impractical jokers. sory i just dont like the fandom
+- Ice supporters, maga, proshippers, groomers, racists, homophobes, transphobes, ableists. ex friends, my ex's, people me or my friends blocked, animal hospital fandom, BTD<-- i HATE YOUALL, dandys world, impractical jokers. sory i just dont like the fandom
 - **Do's/int**
 - C+h anytime !! no matter if i have dni in my name. i LOVE people sitting with me!! other obsession yumeshippers intintint. If u justwanna bmf pls int omgm i dont talk to anyone im crying. Um ummum if u justwanna talki dont care i just  am usualyl dry/offtab, paramore fans INTPLLEAASSEEEEE, dbd fans inniintinttintintni
 
