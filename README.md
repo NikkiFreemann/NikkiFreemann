@@ -41,7 +41,7 @@
   - ask for socials, ill love to give you them !! but 99% of them are milliesaxe of some sort ;p
  -  sarah x nikki int freely , any other ships with EXTRA EXTRA caution
 -  plssplspl dont be afraid to int w me !! especially if youre an obsession fan.. please int omg i need more friends ;//
--  **~~nikki freeman fictkins/fictives<?> iwec unless youre comfy w me selfshipping w her !~~**
+-  **~~nikki freeman fictkins/fictives<?> iwec at all times, i do not wanna make u guys uncomfy;/~~**
 
 </div>
 
