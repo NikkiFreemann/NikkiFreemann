@@ -33,14 +33,13 @@
 - everyones favorite mentally ill werewolf
 - __D1 SARAH X NIKKI SHIPPER EVER TRUST__
   - i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026<3. I yumeship with both prewish nikki, and wish nikki !!
-  - almost always(??) with ghostlywhiskers when theyre online !! << **obsession fandom iwec when im with them ! they dont really like the fandom ^_^** *I LOVE MY SARAAHH!!, hi wife let me out the cage, ghostlywhiskers..*
-  - im also almost always with vixievlopz, but ya ^_^
+  - almost always(??) with ghostlywhiskers when theyre online !! << **obsession fandom iwec when im with them ! they dont really like the fandom ^_^** *I LOVE MY SARAAHH!!, hi boi let me out the cage, ghostlywhiskers..*
   - found wherever the fuck NAD and Vixx is
 
   - i use she / they, im intersex and im a chapstick lesbian!! im also single but thats something else
   - im always up to rp lowk.. add my discord - @milliesaxe
   - ask for socials, ill love to give you them !! but 99% of them are milliesaxe of some sort ;p
- -  Nikki Freeman X Sarah Harper int freely pls . . Nikki Freeman X Baron (BEAR) Bailey iwec . . nikki freeman  x ian iwec. i do NOT ship bear x nikki, i just want some people to be happy around me.
+ -  sarah x nikki int freely , any other ships with EXTRA EXTRA caution
 -  plssplspl dont be afraid to int w me !! especially if youre an obsession fan.. please int omg i need more friends ;//
 -  **~~nikki freeman fictkins/fictives<?> iwec unless youre comfy w me selfshipping w her !~~**
 
