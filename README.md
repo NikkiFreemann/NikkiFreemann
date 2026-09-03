@@ -32,9 +32,7 @@
 - if u want me to stay on allnight/all day pls tell me !! i usually go to bed at 10pm mst and turn my pc off -_- if u want me to stay fr just ask me to stay, i will
 - everyones favorite mentally ill werewolf
 - __D1 SARAH X NIKKI SHIPPER EVER TRUST__
-  - i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026<3. I yumeship with both prewish nikki, and wish nikki !!
-  - almost always(??) with ghostlywhiskers when theyre online !! << **obsession fandom iwec when im with them ! they dont really like the fandom ^_^** *I LOVE MY BESTFRINENNDD!!, hi boi let me out the cage, ghostlywhiskers..*
-  - found wherever the fuck NAD and Vixx is
+  - i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026 !! ;3
 
   - i use she / they, im intersex and im a chapstick lesbian!! im also single but thats something else
   - im always up to rp lowk.. add my discord - @milliesaxe
@@ -70,7 +68,7 @@
 - my humor isnt the best, and i will laugh at everything. iwec if youre not ook with that !! im trying to get my humor fixed by hanging out random people,, rip
 - Ice supporters, maga, proshippers, groomers, racists, homophobes, transphobes, ableists. ex friends, my ex's, people me or my friends blocked, animal hospital fandom, BTD<-- i HATE YOUALL, dandys world, impractical jokers. sory i just dont like the fandom
 - **Do's/int**
-- C+h anytime !! no matter if i have dni in my name. i LOVE people sitting with me!! other obsession yumeshippers intintint. If u justwanna bmf pls int omgm i dont talk to anyone im crying. Um ummum if u justwanna talki dont care i just  am usualyl dry/offtab, paramore fans INTPLLEAASSEEEEE, dbd fans inniintinttintintni
+- C+h anytime !! no matter if i have dni in my name. i LOVE people sitting with me!! other obsession yumeshippers intintint. If u justwanna bmf pls int omgm i dont talk to anyone im crying. Um ummum if u justwanna talki dont care i just  am usualyl dry/offtab
 
 
 
@@ -98,7 +96,7 @@
 
 <div align="center">
 
-selfship art with tloml (nikki)
+selfship art with nikki ggigled
 
 </div>
 <img width="267" height="255" alt="ILOVE YOU NIKKI" src="https://github.com/user-attachments/assets/fcbcd2a4-6fa6-45c4-b1cf-b8d9a80bdfe6" /> <img width="264" height="299" alt="Nikki icon (Obsession 2026)" src="https://github.com/user-attachments/assets/63d600c1-b7a0-48c0-98d1-5de99da73e11" /> <img width="236" height="236" alt="Nikki Freeman" src="https://github.com/user-attachments/assets/436bf912-c043-44c6-9162-e859f6d57669" />
