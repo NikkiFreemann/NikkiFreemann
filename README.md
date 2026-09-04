@@ -35,7 +35,7 @@
   - i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026 !! ;3
 
   - i use she / they, im intersex and im a chapstick lesbian!! im also single but thats something else
-  - im always up to rp lowk.. add my discord - @milliesaxe
+  - ples add my disscord
   - ask for socials, ill love to give you them !! but 99% of them are milliesaxe of some sort ;p
  -  sarah x nikki int freely , any other ships with EXTRA EXTRA caution
 -  plssplspl dont be afraid to int w me !! especially if youre an obsession fan.. please int omg i need more friends ;//
