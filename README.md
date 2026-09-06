@@ -87,21 +87,11 @@
 </div>
 
 
-<div align="center">
-
-<img width="636" height="536" alt="ilmgf" src="https://github.com/user-attachments/assets/b06eac25-483d-4583-ad22-79b9949b39e3" />
-
-
-</div>
 
 <div align="center">
-
-selfship art with nikki ggigled
-
-</div>
 <img width="267" height="255" alt="ILOVE YOU NIKKI" src="https://github.com/user-attachments/assets/fcbcd2a4-6fa6-45c4-b1cf-b8d9a80bdfe6" /> <img width="264" height="299" alt="Nikki icon (Obsession 2026)" src="https://github.com/user-attachments/assets/63d600c1-b7a0-48c0-98d1-5de99da73e11" /> <img width="236" height="236" alt="Nikki Freeman" src="https://github.com/user-attachments/assets/436bf912-c043-44c6-9162-e859f6d57669" />
 
-
+</div>
 
 <div align="center">
 
@@ -126,10 +116,10 @@ selfship art with nikki ggigled
 
 
 
-
+<div align="center">
 
 <img width="172" height="232" alt="pony-town-#- Nikki Freeman , , F_o c + h-kiss-toy137-4x (1)" src="https://github.com/user-attachments/assets/2bbbb829-18a9-4866-b07e-af640d6f70da" /> <img width="196" height="216" alt="pony-town-#- Sarah Harper ,, obsession-kiss-4x" src="https://github.com/user-attachments/assets/29d85c0b-13ab-422b-b758-e29ea4dc1745" />
 
-
+</div>
 
  
