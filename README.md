@@ -26,7 +26,7 @@
 
 <div align="center">
 
- hi, u can call me whatever you want. but im known as Samantha, or hayley ^_^ 
+ hi, u can call me whatever you want. but im known as Malibu, valentine, samantha, or hayley ^_^ 
 - Im mexican american
 - i met shawnee smith 7/11/2026
 - **i share sexual assualt trauma with nikki, and i seriously yumeship with her as it helps me block out trauma;-; i shouldnt have to say this, but you guys are pissing me off**
