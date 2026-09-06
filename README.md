@@ -28,18 +28,19 @@
 
  hi, u can call me whatever you want. but im known as Samantha, or hayley ^_^ 
 - Im mexican american
-- **before you hate, please know i share sa trauma with nikki, and selfshipping with her has helped me block out so much trauma and allowed me to function everyday without acting weird. but your words doesnt annoy me because i actuallly dont gaf about what you think. drool emoji. i will just make fun of you if u said something about me selfshipping with her fr**
-- if u want me to stay on allnight/all day pls tell me !! i usually go to bed at 10pm mst and turn my pc off -_- if u want me to stay fr just ask me to stay, i will
+- i met shawnee smith 7/11/2026
+- **i share sexual assualt trauma with nikki, and i seriously yumeship with her as it helps me block out trauma;-; i shouldnt have to say this, but you guys are pissing me off**
+- DO NOT FUCKING INTERACT WITH ME IF U WATER NIKKI DOWN TO ONLY A SEXUAL ASSAULT VICTIM, AND YOU ACT LIKE THAT IS THE ONLY THING ABOUT HER. SHES HER OWN CHARACTER WITH OTHER STUFF AND NOT ONLY THAT. its so fucking annoying
+- if u want me to stay on allnight/all day please just send me a message/whisper. Be not afraid to ask me, i will gladly do it.
 - everyones favorite mentally ill werewolf
-- __D1 SARAH X NIKKI SHIPPER EVER TRUST__
-  - i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026 !! ;3
+  - i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026 !!^_^
 
   - i use all pronouns, im intersex and im a chapstick lesbian!! im also single but thats something else
   - ples add my disscord
   - ask for socials, ill love to give you them !! but 99% of them are milliesaxe of some sort ;p
  -  sarah x nikki int freely , any other ships with EXTRA EXTRA caution
 -  plssplspl dont be afraid to int w me !! especially if youre an obsession fan.. please int omg i need more friends ;//
--  **~~nikki freeman fictkins/fictives<?> iwec at all times, i do not wanna make u guys uncomfy;/~~**
+-  i prefer if people dont take inspo off my nikki unless youre oomf. ;-; justdont copy me and its ok
 
 </div>
 
@@ -61,12 +62,12 @@
 **BYI**
 - i have bpd, autism, and more !! be paitent with me x_-
 - im a rude person !! im so sorry if im mean to you , i cant help it
-- i make adult jokes,  and im the least sensitive person youll meet sadly ;/
+- i make adult jokes,  and im the least sensitive person youll meet. i DO tell people to kys, and just tell me if youre not ok with that;-;
 - im not a system, plss dont call me a system !!
--  im almost always afk!! please send me a whisper to int !! i luv crowns soso much, thank you to all the sweet people that crowned me !
+-  im almost always afk. ALWAYS send me a whisper unless im obviously moving around. PUB chat is always off
 - **DNI**
 - my humor isnt the best, and i will laugh at everything. iwec if youre not ook with that !! im trying to get my humor fixed by hanging out random people,, rip
-- Ice supporters, maga, proshippers, groomers, racists, homophobes, transphobes, ableists. ex friends, my ex's, people me or my friends blocked, animal hospital fandom, BTD<-- i HATE YOUALL, dandys world, impractical jokers. sory i just dont like the fandom
+- Ice supporters, maga, proshippers, groomers, racists, homophobes, transphobes, ableists. ex friends, my ex's, people me or my friends blocked, animal hospital fandom, BTD<-- i HATE YOUALL, dandys world, impractical jokers, alien stage. sory i just dont like the fandom
 - **Do's/int**
 - C+h anytime !! no matter if i have dni in my name. i LOVE people sitting with me!! other obsession yumeshippers intintint. If u justwanna bmf pls int omgm i dont talk to anyone im crying. Um ummum if u justwanna talki dont care i just  am usualyl dry/offtab
 
@@ -81,8 +82,8 @@
 
 <div align="center">
 
-- i am obsessed with wolves, and canines of any sort !! ive been hyper fixation for almost my WHOLE life !! i amm currently trying to decorate my whole room with wolf stuff AANNDD obsession shit
-- im a medical GEEK. im planning to be a nurse when i graduate
+- i am obsessed with wolves, and canines of any sort !! ive been hyper fixation for almost my WHOLE life !! i amm currently trying to decorate my whole room with wolf stuff 
+- im a medical GEEK. im planning to be a nurse when i graduate. I love needles, and needles do not hurt me.
 
 </div>
 
