@@ -35,7 +35,7 @@
 - everyones favorite mentally ill werewolf
   - i selfship with nikki freeman, and im nonsharing!! doubles pls dni i will cry. i have been selfshipping with nikki freeman since 6/17/2026 !!^_^
 
-  - i use all pronouns, im intersex and im a chapstick lesbian!! im also single but thats something else
+  - i use all pronouns, im intersex ,im a chapstick lesbian, and aroace. i dont really believe in love. im also single
   - ples add my disscord
   - ask for socials, ill love to give you them !! but 99% of them are milliesaxe of some sort ;p
  -  sarah x nikki int freely , any other ships with EXTRA EXTRA caution
