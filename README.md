@@ -26,7 +26,7 @@
 
 <div align="center">
 
- hi, u can call me whatever you want. but im known as Misty, lottie, or bonnie ^_^ i dont have a deadname stop trying to guess it,
+ hi, u can call me whatever you want. but im known as Misty, or natalie ^_^ i dont have a deadname stop trying to guess it,
 - Im mexican american
 - i met shawnee smith 7/11/2026
 - **i share sexual assualt trauma with nikki, and i seriously yumeship with her as it helps me block out trauma;-; i shouldnt have to say this, but you guys are pissing me off**
